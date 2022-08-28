@@ -16,7 +16,7 @@ In recapping Sunday night's draft, I'll once again provide a baseless, narrow mi
 
 <br>
 
-From 12 to 1
+Not in order of ranking, just reverse draft order. 
 
 <br>
 
@@ -215,7 +215,7 @@ From 12 to 1
 > After going through great lengths to be prepared for this year's draft, ended up winning the award for *auto-drafting* yahoo's best team
 
 `Reasons for Hope`
-> The award winning auto-draft did indeed seem to find player value right at the positions Andrew needed all the way down the lineup. Normally I don't list every player on the team but take a look  
+> The award winning auto-draft did indeed seem to find player value right at the positions Andrew needed all the way down the lineup. Normally I don't list every starter but take a look  
 QB - Justin Herbert  
 WR - Tyreek Hill  
 WR - Rashod Bateman  
