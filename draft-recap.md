@@ -1,6 +1,6 @@
-We're back for a THIRD installment of League of Chaps!  We salute old Jim Gray Hairs for his service these last two seasons, and welcome the "Todd Father", team name should be "the Toddlers" (credit Melinda), Todd Nyerges. 
+We're back for a THIRD installment of League of Chaps!  We salute old **Jim Gray** Hairs for his service these last two seasons, and welcome the "Todd Father", team name should be "the Toddlers" (credit Melinda), **Todd Nyerges**. 
 
-Quick number crunching summary of the last 2 seasons.  While TJ and I have brought home trophies there have been FOUR teams to make the playoffs BOTH years.  They are like the Alabama, Ohio State, Clemson, and Georgia of this league. Shout out to *Nate*, *Tony*, *Melinda*, and *Kevin*. 
+Quick number crunching summary of the last 2 seasons.  While **TJ** and **I** have brought home trophies there have been FOUR teams to make the playoffs BOTH years.  They are like the Alabama, Ohio State, Clemson, and Georgia of this league. Shout out to **Nate**, **Tony**, **Melinda**, and **Kevin**. 
 
 In recapping this year's draft, I'll once again provide incorrect opinions on each of your teams.  The formula will be:
 
