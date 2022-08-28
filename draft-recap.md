@@ -22,7 +22,7 @@ In reverse draft order...
 
 # 12. Kevin - A Swift Kick in the Pants {'21 4th Place}
 ``Forefathers`` 
-> Ja'Marr Chase, D'Andre Swift, Breece Hall, Travis Etienne Jr.
+> **Ja'Marr Chase, D'Andre Swift, Breece Hall, Travis Etienne Jr.**
 
 `One Liner`
 > Successfully or unsuccessfully explained to Carrie he could draft from his phone while out to dinner because the 12 spot is only on the clock 8 times intead of 17.  
@@ -41,7 +41,7 @@ In reverse draft order...
 # 11. Todd - The ToddFather
 
 `Forefathers`
-> Stefan Diggs, Nick Chubb, Cam Akers, Terry McLaurin
+> **Stefan Diggs, Nick Chubb, Cam Akers, Terry McLaurin**
 
 `One Liner`
 > "I came here to take a grown man's job!" Actually said by 7th round rookie [Isaiah Pacecho](https://twitter.com/jbbrisco/status/1520546849702264832) but woulda been cool if that was Todd's intro to the league chat. 
@@ -59,7 +59,7 @@ In reverse draft order...
 
 # 10. Daniel - Chubble in Paradise
 `Forefathers`
-> Joe Mixon, Aaron Jones, Big Mike Williams, Courtland Sutton
+> **Joe Mixon, Aaron Jones, Big Mike Williams, Courtland Sutton**
 
 `One Liner`
 > Discussed mock drafts with Nate for 20+ hours in preparation for this year's draft. Took all Nate's players one slot ahead of him in the even rounds. 
@@ -78,7 +78,7 @@ In reverse draft order...
 
 # 9. Nate - Oglebay Fighting Elk {'21 2nd place}
 `Forefathers`
-> Najee Harris, Saquon Barkley, Keenan Allen, Eli Mitchell
+> **Najee Harris, Saquon Barkley, Keenan Allen, Eli Mitchell**
 
 `One Liner`
 > Discussed mock drafts with Daniel for 20+ hours in preparation for this year's draft. Took all Daniels's players one slot ahead of him in the odd rounds. 
@@ -98,7 +98,7 @@ In reverse draft order...
 
 # 8. Joe - Cleveland Commodores
 `Forefathers`
-> Dalvin Cook, Ceedee Lamb, DJ Moore, Allen Robinson
+> **Dalvin Cook, Ceedee Lamb, DJ Moore, Allen Robinson**
 
 `One Liner`
 > Wins championship. "...Oh ya we should have a rile that if you win the championship you get first choice of draft slot"
@@ -117,7 +117,7 @@ In reverse draft order...
 
 # 7. Tony - TMagic  {'21 5th Place}
 `Forefathers`
-> Derrick Henry, Lenny Fournette, AJ Brown, Diontae Johnson
+> **Derrick Henry, Lenny Fournette, AJ Brown, Diontae Johnson**
 
 `One Liner`
 > after Jim retired from fantasy football: "Crap! I'm the only old guy." 
@@ -136,7 +136,7 @@ In reverse draft order...
 
 # 5. TJ - Passless Chaps {Consolation Winner}
 `Forefathers`
-> Austin Ekeler, Davante Adams, Tee Higgins, Josh Allen
+> **Austin Ekeler, Davante Adams, Tee Higgins, Josh Allen**
 
 `One Liner`
 > "Technically, I'm a two time Chapeks League champ."
@@ -154,7 +154,7 @@ In reverse draft order...
 
 # 5. Melinda - Peppa Pigskins {'21 6th place}
 `Forefathers`
-> Cooper Kupp, Alvin Kamara, Ezekiel Elliot, Kyle Pitts
+> **Cooper Kupp, Alvin Kamara, Ezekiel Elliot, Kyle Pitts**
 
 `One Liner`
 > "Nate!?" ..Right after Andrew sighed relief that autodraft didn't give him Ezekiel Elliot this year ..Which was 1 minute after Nate recommended that she take **Ezekiel Elliot**. 
@@ -172,7 +172,7 @@ In reverse draft order...
 
 # 4. Garen - Scottish Hammers
 `Forefathers`
-> Justin Jefferson, Mike Evans, Michael Pittman Jr, David Montgomery
+> **Justin Jefferson, Mike Evans, Michael Pittman Jr, David Montgomery**
 
 `One Liner`
 > Goes home, watches the tape, reviews his team's players, scouts the opponents, pours over the analytics, but for the 5 minutes that he's not coaching Lacrosse he sets his fantasy football lineup. 
@@ -190,7 +190,7 @@ In reverse draft order...
 
 # 3. Matt - Keep My Team Name Out Yo Mouth {wish I thought of this team name}
 `Forefathers`
-> Patrick Mahomes, Travis Kelce, James Conner, Brandin Cooks
+> **Patrick Mahomes, Travis Kelce, James Conner, Brandin Cooks**
 
 `One-Liner`
 > Can watch the full slate of 1pm games yet still make it to the 9:30am Sunday service 
@@ -209,7 +209,7 @@ In reverse draft order...
 
 # 2. Andrew - Berger's Team
 `Forefathers`
-> Jonathan Taylor, Tyreek Hill, Javonte Williams, JK Dobbins
+> **Jonathan Taylor, Tyreek Hill, Javonte Williams, JK Dobbins**
 
 `One Liner`
 > After going through great lengths to be prepared for this year's draft, ended up winning the award for *auto-drafting* yahoo's best team
@@ -236,7 +236,7 @@ These guys all seems to have safe high floors as well as untapped high ceilings.
 
 # 1. Joey - JimGrayHairs
 `Forefathers`
-> Christian McCaffrey, Mark Andrews, Deebo Samuel, Lamar Jackson
+> **Christian McCaffrey, Mark Andrews, Deebo Samuel, Lamar Jackson**
 
 `One Liner`
 > "Andrew's a coward!" (jokingly) After finding out the first pick was still available at his turn. 
