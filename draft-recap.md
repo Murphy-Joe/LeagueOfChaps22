@@ -1,6 +1,6 @@
 We're back for a THIRD installment of League of Chaps!  We salute old **Jim Gray** Hairs for his service these last two seasons, and welcome the "Todd Father", team name should be "the Toddlers" (credit Melinda), **Todd Nyerges**. 
 
-Quick number crunching summary of the last 2 seasons.  While **TJ** and **I** have brought home trophies there have been FOUR teams to make the playoffs BOTH years.  They are like the Alabama, Ohio State, Clemson, and Georgia of this league. Shout out to **Nate**, **Tony**, **Melinda**, and **Kevin**. 
+Quick number crunching summary of the last 2 seasons.  While **TJ** and **I** have brought home trophies there have been FOUR teams to make the playoffs BOTH years.   Shout out to **Nate**, **Tony**, **Melinda**, and **Kevin**. They are like the Alabama, Ohio State, Clemson, and Georgia of this league.
 
 In recapping this year's draft, I'll once again provide incorrect opinions on each of your teams.  The formula will be:
 
@@ -25,7 +25,7 @@ In reverse draft order...
 > **Ja'Marr Chase, D'Andre Swift, Breece Hall, Travis Etienne Jr.**
 
 `One Liner`
-> Successfully or unsuccessfully explained to Carrie he could draft from his phone while out to dinner because the 12 spot is only on the clock 8 times intead of 17.  
+> Successfully or unsuccessfully explained to Carrie he could draft from his phone during dinner because the 12 spot is only on the clock 8 times intead of 17.  
 
 `Reasons for Hope`
 > A lot of players with a supposedly better outlook this year (Aiyuk coming off a strong end of the year, **Marquise Brown** on an offense that passes more, **Etienne** back and Urban Meyer gone)
@@ -62,13 +62,13 @@ In reverse draft order...
 > **Joe Mixon, Aaron Jones, Big Mike Williams, Courtland Sutton**
 
 `One Liner`
-> Discussed mock drafts with Nate for 20+ hours in preparation for this year's draft. Took all Nate's players one slot ahead of him in the even rounds. 
+> Discussed mock drafts with Nate for 20+ hours in preparation for this year's draft. Took all Nate's players one slot ahead of him in the *even* rounds. 
 
 `Reasons for Hope`
 > If you believe the pre-season buzz, **Mike Thomas** is back in 2019 form, **Dameon Pierce** is this year's breakout rookie RB, **Courtland Sutton** is Russ's new #1, and the Chargers finally found a do-it-all backup for Ekeler in **Isaiah Spiller**
 
 `Reasons for Worry`
-> Fringe players at the onesie positions QB and TE, waiting all the way until the 18th QB taken to select **Matt Ryan**, and the 12th TE to take **Albert O**. the 6 RB/WRs might all hit and make up for it though. 
+> Fringe players at the onesie positions QB and TE, waiting all the way until the 18th QB taken to select **Matt Ryan**, and the 12th TE to take **Albert O**. The 6 RB/WRs might all hit and make up for it though. 
 
 `Sneaky Good Player`
 >  **Albert Okwuegbunam**, whom I just called a fringe player, is nonetheless intriguing. He's a Njoku speed/size freak with a high-end QB, and no longer has to cede catches to Tim Patrick or Noah Fant.
@@ -81,15 +81,16 @@ In reverse draft order...
 > **Najee Harris, Saquon Barkley, Keenan Allen, Eli Mitchell**
 
 `One Liner`
-> Discussed mock drafts with Daniel for 20+ hours in preparation for this year's draft. Took all Daniels's players one slot ahead of him in the odd rounds. 
+> Discussed mock drafts with Daniel for 20+ hours in preparation for this year's draft. Took all Daniels's players one slot ahead of him in the *odd* rounds. 
 
 `Reasons for hope`
-> 4 three-down backs (**Najee, Saquon, Eli Mitchell, Josh**) and 3 WRs in high power offenses (**Keenan Allen** - LAC, **Gabriel Davis** - BUF, **Adam Thielen** - MIN) 
+> 4 three-down backs (**Najee, Saquon, Eli Mitchell, Josh Jacobs**) and 3 WRs in high power offenses (**Keenan Allen** - LAC, **Gabriel Davis** - BUF, **Adam Thielen** - MIN) 
 
 `Reasons for worry`
-> Like Daniel, did not pick the onesie QB/TE positions until late, waiting until QB 13 (**Stafford**) and TE 16 (**Higbee**). **Keenan Allen** and **Adam Thielen** are looking at decline sometime in the near future, if that future is not now, but both have great situations. 
+> Like Daniel, did not pick the onesie QB/TE positions until late, waiting until QB 13 (**Stafford**) and TE 16 (**Higbee**). **Keenan Allen** and **Adam Thielen** are looking at decline sometime in the near future, if that future is not now, but both have great situations.  
 *Update: Nate has already upgraded his QB situation by trading Melinda for the 10th QB taken, **Russell Wilson**. 
-**
+**  
+
 `Sneaky Good Player`
 > **Jameis Winston** was actually pretty good before injury last year, and that was with Marquez Callaway as his #1 WR.  He now has Michael Thomas, Jarvis Landry, and Chris Olave. 
 
@@ -101,13 +102,13 @@ In reverse draft order...
 > **Dalvin Cook, Ceedee Lamb, DJ Moore, Allen Robinson**
 
 `One Liner`
-> Wins championship. "...Oh ya we should have a rile that if you win the championship you get first choice of draft slot"
+> Wins championship. "...Oh ya we should have a rule that if you win the championship you get first choice of draft slot"
 
 `Reasons for hope`
-> Hoping KC can settle on one running back, and that it's one of the ones I have. 
+> Hoping KC can settle on one running back, and that it's one of the ones I have (**CEH, Isiah Pacheco**). 
 
 `Reasons for worry`
-> Zero depth as all bench spots are occupied by people who will score zero points unless someone in front of them gets injured
+> Zero depth as all bench spots are occupied by people who will score zero points unless someone in front of them gets injured (**Alexander Mattison, Rachaad White, Isiah Pacheco, Samaje Perine**)
 
 `Sneaky Good Player`
 >  **Josh Palmer**, with rose colored glasses on, can be for the Chargers what Antonio Brown was for the Bucs.  And ready to step into primetime if there were to be an injury to Keenan or BMW. 
@@ -126,7 +127,7 @@ In reverse draft order...
 > If **Derrick Henry** is still Derrick Henry, not too much else matters. 
 
 `Reasons for Worry`
-> The QB situation of the 3 starting WR's: **AJ Brown** - Jalen Hurts,  **Diontae Johnson** - Kenny Pickett, **Darnell Mooney** - Justin Fields.  Great WR's can usually overcome a below average QB, but just good WR's have a little more trouble. 
+> The QB situation of the 3 starting WR's: **AJ Brown** - Jalen Hurts,  **Diontae Johnson** - Kenny Pickett, **Darnell Mooney** - Justin Fields.  Great WR's overcome average QB play, but just good WR's have a little more trouble. 
 
 `Sneaky Good Player`
 > **Darren Waller** plays like he's Kelce but got drafted like he's Kittle.  He now has the OC (Josh McDaniels) that created monsters out of Rob Gronkowski and Aaron Hernandez.   
@@ -160,13 +161,13 @@ In reverse draft order...
 > "Nate!?" ..Right after Andrew sighed relief that autodraft didn't give him Ezekiel Elliot this year ..Which was 1 minute after Nate recommended that she take **Ezekiel Elliot**. 
 
 `Reasons for hope`
-> Rounds 6-8 is where Melinda probably sealed the deal to her 3rd straight playoff appearance, landing **Ju-Ju, Kyler, and Godwin** in the middle rounds. 
+> Rounds 6-8 is where Melinda probably sealed the deal to her 3rd straight playoff appearance, landing **JuJu Smith-Schuster, Kyler Murray, and Chris Godwin** in the middle rounds. 
 
 `Reasons for worry`
 > There is some skepticism the the RBs  will be as productive this year as they have in years past (**Zeke** - declining, **Kamara** - w/o Sean Payton, **Damien Harris** - more rotational)
 
 `Sneaky Good Player`**
-> **Ju-Ju Smith Schuster** seems to fit the profile of "player most likely to pull a Cooper Kupp" in that he's a good player still in his prime, was held back by poor QB play, and is now likely the #1 WR of the league's best QB. 
+> **JuJu Smith-Schuster** seems to fit the profile of "player most likely to pull a Cooper Kupp" in that he's a good player still in his prime, was held back by poor QB play, and is now likely the #1 WR of the league's best QB. 
 
 <br>
 
@@ -178,7 +179,7 @@ In reverse draft order...
 > Goes home, watches the tape, reviews his team's players, scouts the opponents, pours over the analytics, but for the 5 minutes that he's not coaching Lacrosse he sets his fantasy football lineup. 
 
 `Reasons for Hope`
-> QB and WRs can carry this team (**Hurts, Justin Jefferson, Mike Evans, Michael Pittman Jr**)
+> QB and WRs can carry this team (**Jalen Hurts, Justin Jefferson, Mike Evans, Michael Pittman Jr**)
 
 `Reasons for Worry`
 > They'll probably have to! The RB room consists of whichever RB Chicago uses (**Montgomery** or **Herbert**) and Green Bay's 2nd option (**AJ Dillon**).  While the TE and Flex (**Dallas Goedert** and **Christian Kirk**) don't look like meaningful contributors just yet. 
@@ -230,7 +231,7 @@ These guys all seems to have safe high floors as well as untapped high ceilings.
 > The pass catchers after Tyreek (**Bateman, Moore, Ertz**) all have to improve this year to be worth starting, but they're expected to. 
 
 `Sneaky Good Player`
-> **JK Dobbins** hype has been very lukewarm for what an ideal situation he's in.  He's very much likely to get all the work his recovering ACL can handle on an offense designed to run the ball. 
+> **JK Dobbins** hype has been very lukewarm for what an ideal situation he's in.  He's likely to get all the work his recovering ACL can handle on an offense designed to run the ball. 
 
 <br>
 
